@@ -7,5 +7,7 @@ I tried imitating how the customer serving process at a normal cafe using what I
 
 ## Social Media 
 Facebook - www.facebook.com/billyyysalamat
+
 Twitter - www.twitter.com/billysalamat
+
 LinkedIn - www.linkedin.com/in/billysalamat
